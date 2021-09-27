@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Meli(Bernadeth Ganedalia Silfani)
+- 👋 Hi, I’m Meli (Bernadeth Ganedalia Silfani)
 - 👀 I’m interested in Human Resource Management
 - 🌱 I’m currently working as HR Staff at PT Synergy Engineering
 - 💞️ I’m looking for a job that suits me
